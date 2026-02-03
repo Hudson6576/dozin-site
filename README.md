@@ -1,1 +1,1 @@
-https://DUZIN-NET.github.io/nomedosite/
+https://DUZIN-NET.github.io/Duzinnerdosite/
